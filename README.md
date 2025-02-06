@@ -50,6 +50,4 @@ https://www.livingroyal.com/
 https://www.bootea.com/
 
 Looking forward to connecting with you 
-
-Regards, 
 Umara![image](https://github.com/user-attachments/assets/6c73ef83-c865-4356-9cac-8bc7707bd3aa)
